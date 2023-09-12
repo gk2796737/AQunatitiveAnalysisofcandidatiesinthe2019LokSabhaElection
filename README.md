@@ -1,0 +1,1 @@
+# AQunatitiveAnalysisofcandidatiesinthe2019LokSabhaElection
